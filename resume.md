@@ -24,7 +24,7 @@ Senior Secondary School Certificate
 
 **<span style="text-decoration:underline;">WORK EXPERIENCE </span>**
 
-Feb 2018 – Jun 2018 **Univelcity **
+Nov 2019 – to date **Univelcity **
 
 **Frontend Engineer/UI/UX Designer**
 
